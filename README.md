@@ -1,4 +1,3 @@
-[index.html](https://github.com/user-attachments/files/35030747/index.html)
 # soal-kdk-new
 walawe bray belajar woi
 
